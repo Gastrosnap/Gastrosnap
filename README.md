@@ -31,6 +31,6 @@ DNI: basic criteria, MHA + DSMP fandoms (unless friends), Ex0lem nd Coke (you tw
 
 INT!: Godzilla, Monster Hunter, Slendytubbies, PHIGHTING, Creatures of Sonaria, WoF, WC, Madness Combat, FNAF, Wobbledogs, Slime Rancher, Bugsnax, ect
 
-Thin Ice: Pressure, Blocktales, Countryhumans/Statehumans/Spacehumans, FNF, Kaiju Paradise, Demon Slayer, FPE
+Thin Ice: Pressure, Blocktales, Countryhumans/Statehumans/Spacehumans, FNF fandom, Kaiju Paradise, Demon Slayer fandom, FPE fandom
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
