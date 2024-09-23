@@ -27,7 +27,7 @@ Away: 50/50 chance fer a response, whisper me if you *really* need to talk to me
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
 
-DNI: basic criteria, MHA + DSMP fandoms (unless friends), Ex0lem nd Coke (you two know who you are.), support Helluva/Hazbin, Dandy's, ect
+DNI: basic criteria, MHA + DSMP fandoms (unless friends), Ex0lem nd Coke (you two know who you are.), support Wilbur Soot, Meowbahh, Helluva/Hazbin, Dandy's, ect
 
 INT!: Godzilla, Monster Hunter, Slendytubbies, PHIGHTING, Creatures of Sonaria, WoF, WC, Madness Combat, FNAF, Wobbledogs, Slime Rancher, Bugsnax, ect
 
