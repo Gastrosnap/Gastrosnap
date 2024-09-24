@@ -6,6 +6,8 @@ Any pronouns aside from She/Her
 
 Don't copy my cosplays please nd thank you <3
 
+You can mostly find me in the phighting area!.. m mostly in a DU cosplay though (I DONT SUPPORT THEM)
+
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
 
 BYI !!
@@ -27,7 +29,7 @@ Away: 50/50 chance fer a response, whisper me if you *really* need to talk to me
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
 
-DNI: basic criteria, MHA + DSMP fandoms (unless friends), Ex0lem nd Coke (you two know who you are.), support Wilbur Soot, Meowbahh, Helluva/Hazbin, Dandy's, ect
+DNI: basic criteria, MHA + DSMP fandoms (unless friends), Ex0lem nd Coke (you two know who you are.), if you support Wilbur Soot, Meowbahh, Helluva/Hazbin, Dandy's, DU, ect
 
 INT!: Godzilla, Monster Hunter, Slendytubbies, PHIGHTING, Creatures of Sonaria, WoF, WC, Madness Combat, FNAF, Wobbledogs, Slime Rancher, Bugsnax, ect
 
