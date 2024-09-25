@@ -29,10 +29,10 @@ Away: 50/50 chance fer a response, whisper me if you *really* need to talk to me
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
 
-DNI: basic criteria, MHA + DSMP fandoms (unless friends), Ex0lem nd Coke (you two know who you are.), Don (hey man throwin r3t@rd around isnt a good thign thats actually very bad !!), if you support Wilbur Soot, Meowbahh, Helluva/Hazbin, Dandy's, DU, ect
+DNI: basic criteria, MHA + DSMP fandoms (unless friends), Ex0lem nd Coke (you two know who you are.), Don (hey man throwin r3t@rd around isnt a good thing thats actually very bad !! yer also ere fer other reasons </3), if you support Wilbur Soot, Meowbahh, Helluva/Hazbin, Dandy's, DU, ect
 
-INT!: Godzilla, Monster Hunter, Slendytubbies, PHIGHTING, Creatures of Sonaria, WoF, WC, Madness Combat, FNAF, Wobbledogs, Slime Rancher, Bugsnax, ect
+INT!: Godzilla, Monster Hunter, Slendytubbies, PHIGHTING, Creatures of Sonaria, WoF, WC, Madness Combat, FNAF, Wobbledogs, Slime Rancher, Bugsnax, Faith, ect
 
-Thin Ice: Pressure, Blocktales, Countryhumans/Statehumans/Spacehumans, FNF fandom, Kaiju Paradise, Demon Slayer fandom, FPE fandom, Subkit shippers, ect
+Thin Ice: Pressure, Blocktales, Countryhumans/Statehumans/Spacehumans, FNF fandom, Kaiju Paradise, Demon Slayer fandom, FPE fandom, Subkit shippers, Associated with Don (nothin against him or yall but fer comfort reasons yall are all ere somewhere), ect
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
