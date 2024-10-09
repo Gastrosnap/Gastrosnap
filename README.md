@@ -1,4 +1,4 @@
-Dove / Ghast / Yule / Hyper
+Dove / Ghast / Yule / Hyper / Dynamic
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
 
@@ -29,10 +29,10 @@ Away: 50/50 chance fer a response, whisper me if you *really* need to talk to me
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
 
-DNI: basic criteria, MHA + DSMP fandoms (unless friends), Ex0lem nd Coke (you two know who you are.), if you support Wilbur Soot, Meowbahh, Helluva/Hazbin, Dandy's, DU, ect
+DNI: basic criteria, MHA + DSMP fandoms (unless friends), Ex0lem nd Coke (you two know who you are.), if you support Wilbur Soot, Meowbahh, Helluva/Hazbin, DU, ect
 
 INT!: Godzilla, Monster Hunter, Slendytubbies, PHIGHTING, Creatures of Sonaria, WoF, WC, Madness Combat, FNAF, Wobbledogs, Slime Rancher, Bugsnax, Faith, ect
 
-Thin Ice: Pressure, Blocktales, Countryhumans/Statehumans/Spacehumans, FNF fandom, Kaiju Paradise, Demon Slayer fandom, FPE fandom, Subkit shippers,  ect
+Thin Ice: Pressure, Blocktales, Countryhumans/Statehumans/Spacehumans, FNF fandom, Kaiju Paradise, Demon Slayer fandom, FPE fandom, Subkit shippers, Dandy's  ect
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
