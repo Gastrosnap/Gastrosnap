@@ -6,7 +6,7 @@ Any pronouns aside from She/Her
 
 Don't copy my cosplays please nd thank you <3
 
-You can mostly find me in the phighting area!.. m mostly in a DU cosplay though (I DONT SUPPORT THEM)
+You can mostly find me in the phighting area!.. m mostly in a DU cosplay though (USUALLY BENEVOLENT_DAY OR DYNAMIC_DAY) (I DONT SUPPORT TDU)
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
 
