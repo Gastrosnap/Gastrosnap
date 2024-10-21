@@ -6,7 +6,7 @@ Any pronouns aside from She/Her
 
 Don't copy my cosplays please nd thank you <3
 
-You can mostly find me in the phighting area!.. m mostly in a DU cosplay though (USUALLY BENEVOLENT_DAY OR DYNAMIC_DAY) (I DONT SUPPORT TDU)
+You can mostly find me in the phighting area!.. m mostly in a DU cosplay though (I DONT SUPPORT TDU)
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
 
@@ -14,6 +14,7 @@ BYI !!
 
 I've been emotionally nd mentally abused/manipulated throughout majority of my life, as well as being s/a'd various times nd its made me rather sensitive nd irritable. 
 please be patient with me, m tryin to get better.
+
 
 You can always cuddle with me, I won't mind the company!
 
