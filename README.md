@@ -15,6 +15,8 @@ BYI !!
 I've been emotionally nd mentally abused/manipulated throughout majority of my life, as well as being s/a'd various times nd its made me rather sensitive nd irritable. 
 please be patient with me, m tryin to get better.
 
+Please use tone tags with me when you're joking around (unless we're close friends), mostly because of how sensitive I can get sometimes, but also for comfort reasons.
+
 
 You can always cuddle with me, I won't mind the company!
 
