@@ -13,9 +13,13 @@ You can mostly find me in the phighting area!.. m mostly in a DU cosplay though 
 BYI !!
 
 I've been emotionally nd mentally abused/manipulated throughout majority of my life, as well as being s/a'd various times nd its made me rather sensitive nd irritable. 
-please be patient with me, m tryin to get better.
 
-Please use tone tags with me when you're joking around (unless we're close friends), mostly because of how sensitive I can get sometimes, but also for comfort reasons.
+I display * SOME * symptoms of DID nd PTSD, I am NOT self diagnosing, nor am I actually diagnosed, but please keep that in mind.
+
+Please try to be patient with me, m tryin to get better, but I haven't been makin much progress as of now. 
+
+
+Try to use tone tags with me when you're joking around (unless we're close friends), mostly because of how sensitive I can get sometimes, but also for comfort reasons.
 
 
 You can always cuddle with me, I won't mind the company!
@@ -34,8 +38,8 @@ Away: 50/50 chance fer a response, whisper me if you *really* need to talk to me
 
 DNI: basic criteria, MHA + DSMP fandoms (unless friends), Ex0lem nd Coke (you two know who you are.), if you support Wilbur Soot, Meowbahh, Helluva/Hazbin, TDU, ect
 
-INT!: Godzilla, Monster Hunter, Slendytubbies, PHIGHTING, Creatures of Sonaria, WoF, WC, MadCom, FNAF, Wobbledogs, Slime Rancher, Bugsnax, Faith, ect
+INT!: Godzilla, Monster Hunter, Slendytubbies, Welcome to Dreamworld, Creatures of Sonaria, Subnautica, Horizon, MadCom, FNAF, Wobbledogs, Slime Rancher, Bugsnax, Faith, ect
 
-Thin Ice: Pressure, Blocktales, Countryhumans/Statehumans/Spacehumans, FNF fandom, Kaiju Paradise, Demon Slayer fandom, FPE fandom, Subkit shippers, Dandy's, Sonic fandom, ect
+Thin Ice: Pressure, Blocktales, Countryhumans/Statehumans/Spacehumans, FNF fandom, Kaiju Paradise, Demon Slayer fandom, FPE fandom, Subkit shippers, Dandy's, Sonic fandom, PHIGHTING fandom, ect
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
