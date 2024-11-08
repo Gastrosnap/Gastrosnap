@@ -14,25 +14,24 @@ BYI !!
 
 I've been emotionally nd mentally abused/manipulated throughout majority of my life, as well as being s/a'd various times nd its made me rather sensitive nd irritable. 
 
-I display * SOME * symptoms of DID nd PTSD, I am NOT self diagnosing, nor am I actually diagnosed, but please keep that in mind.
 
 Please try to be patient with me, m tryin to get better, but I haven't been makin much progress as of now. 
 
 
-Try to use tone tags with me when you're joking around (unless we're close friends), mostly because of how sensitive I can get sometimes, but also for comfort reasons.
+I block nd hide VERY freely, don't be too surprised if I block/hide you without explaination.
 
 
-You can always cuddle with me, I won't mind the company!
+You can always cuddle with me, I won't mind the company! I'm pretty lonely anyways so I find it comfortin
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
 
-STATUSES !
+STATUSES / OTHERS
 
 Busy: Offtab, skinmaking, or bein lazy/wantin to talk to a select few people
 
-Online: Barely use, but interact with me!
+Away: Slower response time than normal
 
-Away: 50/50 chance fer a response, whisper me if you *really* need to talk to me.
+Comf: Usually in a horrible mood, iwecare or just dni entirely
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
 
