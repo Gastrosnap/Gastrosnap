@@ -37,7 +37,7 @@ Comf: Usually in a horrible mood, iwecare or just dni entirely
 
 DNI: basic criteria, MHA + DSMP fandoms (unless friends), Ex0lem nd Coke (you two know who you are.), if you support Wilbur Soot, Meowbahh, Helluva/Hazbin, TDU, IDK THE PRESSURE DEVS??? ect
 
-INT!: Godzilla, Monster Hunter, Slendytubbies, Welcome to Dreamworld, Creatures of Sonaria, Subnautica, Horizon, MadCom, FNAF, Wobbledogs, Slime Rancher, Bugsnax, Faith, ect
+INT!: Godzilla, Monster Hunter, Slendytubbies, Welcome to Dreamworld, Creatures of Sonaria, Subnautica, Horizon, MadCom, FNAF, Wobbledogs, Slime Rancher, Bugsnax, Faith, Dark Deception, ect
 
 Thin Ice: Pressure, Blocktales, Countryhumans/Statehumans/Spacehumans, FNF fandom, Kaiju Paradise, Demon Slayer fandom, FPE fandom, Subkit shippers, Dandy's, Sonic fandom, PHIGHTING fandom, ect
 
