@@ -21,7 +21,7 @@ Please try to be patient with me, m tryin to get better, but I haven't been maki
 I block nd hide VERY freely, don't be too surprised if I block/hide you without explaination.
 
 
-You can always cuddle with me, I won't mind the company! I'm pretty lonely anyways so I find it comfortin
+You can always cuddle with me, I won't mind the company!
 
 |~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~|
 
